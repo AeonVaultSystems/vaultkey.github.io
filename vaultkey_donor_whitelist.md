@@ -7,6 +7,6 @@
 
 ---
 
-1st -- Hristijan Lisichkov- Technology services, software dev, secure storage
+# 1: Hristijan Lisichkov- Technology services, software dev, secure storage
 
-[More entries will be manually appended here]
+
