@@ -7,6 +7,14 @@
 
 ---
 
-# 1: klimq- Technology services, software dev, secure storage
-
+# 1: klimq- Technology services, software dev, secure storage.
+# 2: @AbdBasit_Ahmod - 
+# 3: @Mikkel2056650 -
+# 4: @8bit_degen -
+# 5: @devkelly26 -
+# 6: @0xObake -
+# 7: @SlxmJx -
+# 8: @Sol_00W Lisan -
+# 9: @Vekiouu -
+# 10: @SatoshisHeir - 
 
