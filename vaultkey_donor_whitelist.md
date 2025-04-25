@@ -7,7 +7,7 @@
 
 ---
 
-# 1: klimq- Technology services, software dev, secure storage.
+# 1: klimq- Technology services, software dev, secure storage.(Stripe) 
 # 2: @AbdBasit_Ahmod - 
 # 3: @Mikkel2056650 -
 # 4: @8bit_degen -
